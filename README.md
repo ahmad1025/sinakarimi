@@ -1,2 +1,0 @@
-# sinakarimi
-Welcome personal Website
